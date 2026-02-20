@@ -24,4 +24,3 @@ Esta es una revolución sociológica. Utilizamos la lógica subyacente de la fí
 葡萄牙语 (Português):
 Esta é uma revolução sociológica. Utilizamos a lógica subjacente da física para realizar uma auditoria total das formas de organização social e dos contratos éthicos existentes, implementando uma linha de defesa lógica nas profundezas da civilização global. Não é uma mudança de retórica, mas uma formatação do caos sociológico por axiomas físicos.
 
-asdfsfasdfafadfgs
